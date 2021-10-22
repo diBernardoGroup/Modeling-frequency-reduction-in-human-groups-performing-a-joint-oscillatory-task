@@ -1,0 +1,1 @@
+# Modeling-frequency-reduction-in-human-groups-performing-a-joint-oscillatory-task
